@@ -1,5 +1,4 @@
 # Here are some websites I have found online which prove Dobromił Duda / Antypodish, a Polish UK citizen and PhD of Lancaster University, was not only involved in but operated the suspected scam "PipsTycoon"<br>
-<br>
 <hr>
 ### Information about the scam itself: (if you scroll down the comments you can see him promoting his service before it got listed in a bad light)<br>
 https://foxyrating.com/en/review-14971-pipstycoon<br>
@@ -11,36 +10,29 @@ https://www.facebook.com/pg/pipstycoonfraud/<br>
 ### Here is also what seems to be a tutorial from when the previous owner ran the service:<br>
 https://thebot.net/threads/hot-earn-money-playing-pipstycoon-complete-tutorial-with-pictures.328490/<br>
 Archived: https://web.archive.org/web/20201207030359/https://thebot.net/threads/hot-earn-money-playing-pipstycoon-complete-tutorial-with-pictures.328490/<br>
-<br>
 <hr>
 ### This is the earliest reference I could find to Antypodish promoting this scam dated the 28th of June 2016<br>
 https://www.linkedin.com/pulse/pipstycoon-investing-gaming-dobromil-duda<br>
 Archived: https://web.archive.org/web/20201206223029/https://www.linkedin.com/pulse/pipstycoon-investing-gaming-dobromil-duda<br>
-<br>
 <hr>
 ### Here he promotes his scam in the comments<br>
 https://newrpg.com/browser-games/pipstycoon/<br>
 Archived: https://web.archive.org/web/20201108115455/https://newrpg.com/browser-games/pipstycoon/<br>
-<br>
 <hr>
 ### Here he is promoting his scam on bitcoin talk, after an individual posts a thread about it<br>
 https://bitcointalk.org/index.php?topic=1139592.0<br>
 Archived: http://web.archive.org/web/20201207021409/https://bitcointalk.org/index.php?topic=1139592.0<br>
-<br>
 <hr>
 ### Here he is found promoting his scam on a well known scammers forum:<br>
 https://thebot.net/threads/guide-pipstycoon.328328/page-2<br>
 Archived: https://web.archive.org/web/20200918045801/https://thebot.net/threads/guide-pipstycoon.328328/page-2<br>
-<br>
 <hr>
 ### Here you can find some reviews of thebot.net forum:<br>
 https://uk.trustpilot.com/review/thebot.net<br>
-<br>
 <hr>
 ### In this link his signature lists him as "PipsTycoon Supporter, Investor and Tester" proving he was also running the scam as well as promoting it<br>
 https://bitcoinforum.com/game/pipstycoon-renaissance-earn-playing-(rce-browser-based-game)/?PHPSESSID=Du6b-,D,V-cl5hOu0JhjH3<br>
 Archived: http://web.archive.org/web/20201207021745/https://bitcoinforum.com/game/pipstycoon-renaissance-earn-playing-(rce-browser-based-game)/?PHPSESSID=Du6b-%2CD%2CV-cl5hOu0JhjH3<br>
-<br>
 <hr>
 ### More links with information about Dobromił Duda: (all publicly available with a simple google search at the time of writing this)<br>
 http://Antypodish.com<br>
@@ -49,7 +41,6 @@ https://github.com/Antypodish<br>
 https://twitter.com/antypodish<br>
 https://www.facebook.com/dobromil.duda<br>
 http://www.research.lancs.ac.uk/portal/en/people/dobromil-duda(c908a1f9-e6dc-446a-8be8-6fc7c7c52f05).html<br>
-<br>
 <hr>
 Of all people Dobromił Duda is a PhD studying at Lancaster University, if only he could have put his talents to better use.<br>
 <br>
