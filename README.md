@@ -1,4 +1,4 @@
-<h2>Here are some websites I have found online which prove Dobromił Duda / Antypodish, a Polish UK citizen and PhD of Lancaster University, was not only involved in but operated the suspected scam "PipsTycoon"</h2>
+<h2>Here are some websites I have found online which prove Dobromił Duda / Antypodish, a Polish UK citizen and PhD of Lancaster University, was not only involved in but operated the suspected scam known as "PipsTycoon.com"</h2>
 <b>Information about the scam itself:</b> <i>(if you scroll down the comments you can see him promoting his service before it got listed in a bad light)</i><br>
 https://foxyrating.com/en/review-14971-pipstycoon<br>
 Archived: https://web.archive.org/web/20200920005757/https://foxyrating.com/en/review-14971-pipstycoon<br>
