@@ -47,4 +47,6 @@ While it is disputed whether ultimately this operation was a scam, it seems many
 <br>
 So this is where I feel it's up to you, as users to decide how innocent or guilty this individual is based on the evidence provided above, but what I will say is that it's very easy for some people to cut and run when bitcoin projects go south, and it certainly seems like that is what Dobromił Duda did from what we can make of the information above.<br>
 <br>
-There are some honest people out there who will pay back every satoshi to their users, some of which include notorious drug markets. So in that respect, if he cut and ran on even just a few people, technically he did run a scam, but more importantly it reflects upon how this individual ultimately operated in a dishonest way to benefit himself in a clearly already very shadey industry.
+There are some honest people out there who will pay back every satoshi to their users, some of which include notorious drug markets. So in that respect, if he cut and ran on even just a few people, technically he did run a scam, but more importantly it reflects upon how this individual ultimately operated in a dishonest way to benefit himself in a clearly already very shadey industry.<br>
+<br>
+In the case that any of the links above become broken over time I have provided a backup archive in this repository [`web_backup.zip`](https://github.com/AntyScammer/Antypodish/blob/main/web_backup.zip)
