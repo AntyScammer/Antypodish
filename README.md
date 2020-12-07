@@ -49,4 +49,6 @@ So this is where I feel it's up to you, as users to decide how innocent or guilt
 <br>
 There are some honest people out there who will pay back every satoshi to their users, some of which include notorious drug markets. So in that respect, if he cut and ran on even just a few people, technically he did run a scam, but more importantly it reflects upon how this individual ultimately operated in a dishonest way to benefit himself in a clearly already very shadey industry.<br>
 <br>
-In the case that any of the links above become broken over time I have provided a backup archive in this repository of all websites in question: <a href="https://github.com/AntyScammer/Antypodish/archive/main.zip">web_backup.zip</a>
+In the case that any of the links above become broken over time I have provided a backup archive in this repository of all websites in question: <a href="https://github.com/AntyScammer/Antypodish/archive/main.zip">web_backup.zip</a><br>
+<br>
+<img src="https://github.com/AntyScammer/Antypodish/blob/main/DEENhGNXkAAmvx6.jpg" />
