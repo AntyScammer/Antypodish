@@ -41,7 +41,7 @@ https://twitter.com/antypodish<br>
 https://www.facebook.com/dobromil.duda<br>
 http://www.research.lancs.ac.uk/portal/en/people/dobromil-duda(c908a1f9-e6dc-446a-8be8-6fc7c7c52f05).html<br>
 <hr>
-Of all people Dobromił Duda is a PhD studying at Lancaster University, if only he could have put his talents to better use.<br>
+Of all people Dobromił Duda is a PhD studying at Lancaster University, he could have put his talents to a better use.<br>
 <br>
 While it is disputed whether ultimately this operation was a scam, it seems many users do feel that towards the end of it's life span they had been scammed, also, it is worth noting that Dobromił Duda even specifies on his personal site how he ran, now defunct online game, PipsTycoon. So surly he himself feels he never operated a scam.<br>
 <br>
